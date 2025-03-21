@@ -246,6 +246,6 @@ Remember to gamble responsibly and only with funds you can afford to lose. Crypt
 
 ---
 
-*Last updated: March 2025 - We regularly review our recommendations to ensure accuracy and timeliness of information.*
+*Last updated: 21st March 2025 - We regularly review our recommendations to ensure accuracy and timeliness of information.*
 
 *Disclaimer: This information is for educational purposes only. Always verify the legal status of online gambling in your jurisdiction before participating.*
