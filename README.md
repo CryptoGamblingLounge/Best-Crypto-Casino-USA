@@ -10,7 +10,7 @@ Based on our research, here are our top 5 picks for **best crypto gambling sites
 |----------|------------|-----------|---------------|------------|
 | 1 | [Jackbit](https://bitcoinbetzone.com/crypto/jackbit) ***RECOMMENDED*** | Up to 5 BTC + 200 Free Spins | Instant Withdrawals | ⭐⭐⭐⭐⭐ (98.7%) |
 | 2 | [Winna](https://bitcoinbetzone.com/crypto/winna) | VIP Transfer & 60% Rakeback | Best VIP Program | ⭐⭐⭐⭐⭐ (97.4%) |
-| 3 | [7Bit Casino](https://bitcoinbetzone.com/crypto/7bit) | Up to 5 BTC + 100 Free Spins | Most Established Bitcoin Site | ⭐⭐⭐⭐ (96.3%) |
+| 3 | [7Bit](https://bitcoinbetzone.com/crypto/7bit) | Up to 5 BTC + 100 Free Spins | Most Established Bitcoin Site | ⭐⭐⭐⭐ (96.3%) |
 | 4 | [Hellspin](https://bitcoinbetzone.com/crypto/hellspin) | Up to 4 BTC + 150 Free Spins | Best Slot Selection | ⭐⭐⭐⭐ (95.6%) |
 | 5 | [Stake](https://bitcoinbetzone.com/crypto/stake) | 200% up to $2,000 | Sports Betting Integration | ⭐⭐⭐⭐ (94.9%) |
 
